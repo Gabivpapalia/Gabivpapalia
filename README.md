@@ -1,4 +1,4 @@
-Hey, eu sou @Gabivpapalia
+Eai, eu sou a Gabi
 - Eu estou interessada em 
 - Atualmente, estou aprendendo 
 - 💞️ I’m looking to collabor
